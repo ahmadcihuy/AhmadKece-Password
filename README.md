@@ -1,0 +1,2 @@
+# AhmadKece-Password
+PASSWORD ALL SCRIPT AHMAD
